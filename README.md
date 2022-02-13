@@ -1,3 +1,6 @@
+<img src="https://i.imgur.com/lHsFrv4.png" width="584">
+
+
 MUISTIPELIN KÄYTTÖOHJE 
 
 
